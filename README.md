@@ -1,2 +1,2 @@
-# Juno-Carrer-mode
-Idk maybe random stuff
+# Bio
+Feel free to interact with me in pt 
